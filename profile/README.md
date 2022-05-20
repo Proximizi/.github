@@ -1,1 +1,1 @@
-# Proximizy
+# Proximizi
